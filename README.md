@@ -1,0 +1,2 @@
+# leptopredmagic
+aku jago
